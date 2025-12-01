@@ -1,0 +1,1 @@
+# LP_ICT9Ruby_Q2Seatwork2_Kim_Yujin
